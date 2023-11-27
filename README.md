@@ -1,6 +1,7 @@
 # Flavio Rafael Cardozo
 ## flavero@gmail.com    - (19) 99882-1845
-## https://br.linkedin.com/in/flavio-rafael-cardozo-66a763143
+## [Linkedin](https://br.linkedin.com/in/flavio-rafael-cardozo-66a763143)
+## [GitHub](https://github.com/flavero85)
 
 ## Nova Odessa-SP 
 > "Em algum, algo incrível está esperando para ser descoberto." Carls Sagan
